@@ -1,0 +1,1 @@
+Click on the Color bars to create music.
